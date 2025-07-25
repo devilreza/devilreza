@@ -1,4 +1,4 @@
-# Hi there, I'm DevilReza 👋
+# Hi there, I'm Alireza 👋
 
 ## 🚀 About Me
 - 💻 Passionate developer who loves to code and create
